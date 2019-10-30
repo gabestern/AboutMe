@@ -22,14 +22,14 @@ Camp Counselor
 - Trained Counselor&#39;s in Training
 - Dealt with disciplinary issues
 
-**Spread the Lax Organization** , Wyckoff, NJJune 2018 – August 2019
+**Spread the Lax Organization** , Wyckoff, NJ June 2018 – August 2019
 
 Vice President
 
 - Facilitated collection and distribution of over $5,000 of lacrosse equipment
 - Aided the expansion of youth lacrosse teams in Bronx, NY and Passaic, NJ
 
-**Landscape Maintenance** , Wyckoff, NJJune 2017 – August 2019
+**Landscape Maintenance** , Wyckoff, NJ June 2017 – August 2019
 
 Landscaper
 
